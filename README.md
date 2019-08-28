@@ -1,1 +1,0 @@
-# TurkishMP-Bot
